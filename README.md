@@ -4,7 +4,7 @@
 
 ### Helping CEOs, Founders, Startups, and Growing Businesses save time, streamline operations, and scale efficiently through executive support, workflow optimization, CRM management, and custom business systems.
 
-I don't just manage administrative tasks—I build organized systems that improve productivity, simplify operations, and help leaders focus on growing their businesses.
+I don't just manage administrative tasks I build organized systems that improve productivity, simplify operations, and help leaders focus on growing their businesses.
 
 ---
 
@@ -161,4 +161,4 @@ Nigeria | Remote Worldwide
 
 I'm actively seeking opportunities to support CEOs, founders, startups, agencies, and remote teams with executive assistance, operations support, CRM management, workflow optimization, and business systems that drive productivity and growth.
 
-Let's build smarter systems and achieve more—together.
+Let's build smarter systems and achieve more together.
